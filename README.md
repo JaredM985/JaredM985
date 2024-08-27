@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Jared
+- 👀 I’m interested in learning Cyber Security
+- 🌱 I’m currently learning Cyber Security through college
+- ⚡ I enjoy Art, Video Games, Anime, and Working Out
